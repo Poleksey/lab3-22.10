@@ -5,4 +5,6 @@
 
 ![изображение](https://github.com/user-attachments/assets/b3048ad0-bac0-4845-a678-43bb6c4901fa)
 
+
+
 ![лаба 3 инфа](https://github.com/user-attachments/assets/213bf9cd-a42b-4a4c-8f7a-97046e1e0b1c)
