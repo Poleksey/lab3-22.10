@@ -3,7 +3,8 @@
 
 ![изображение](https://github.com/user-attachments/assets/0951fc98-b450-4696-98d9-a99a4f22fcab)
 
-![изображение](https://github.com/user-attachments/assets/b3048ad0-bac0-4845-a678-43bb6c4901fa)
+
+![изображение](https://github.com/user-attachments/assets/7bda6c8e-ba14-42b0-b047-04c794d8f6f2)
 
 
 
